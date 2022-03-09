@@ -1,0 +1,2 @@
+# Making-defi-safer-and-simpler
+I've walked head first into about every bad decision one can make on this web that supposedly stretches round the world. Never occured to me to blame myself... The goal is simple, making passive income whilst networking without having to always *DYOR!!* Making it more of a community.... Wellp, gotta start somewhere, and that's how long time and more or less what you need to get the max yield out of your home setup. While staying safe. And not being a complete moron. Or feeling like one. Fait Simple.
